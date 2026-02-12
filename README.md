@@ -1,10 +1,10 @@
-![Image](https://github.com/user-attachments/assets/f0172fb8-7766-474b-8623-69f06bf490d8)
+![Image](https://github.com/user-attachments/assets/807eeae5-0066-48e9-8d73-c829116b1737)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Image](https://github.com/user-attachments/assets/117f3ae0-edb9-4c66-b1a0-9e5fa631323f)ㅤㅤㅤi like regisㅤㅤദ്ദി๑>؂•̀๑)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Image](https://github.com/user-attachments/assets/4da7bd3f-a37d-4c0c-a553-6bae901751aaㅤㅤㅤi like regisㅤㅤദ്ദി๑>؂•̀๑)
 
 ㅤㅤㅤㅤㅤ𓂃ㅤㅤ ppl i follwㅤㅤr ㅤㅤ**oomfs**ㅤㅤ/coolㅤguys  ㅤㅤ 𝘇 𐰁
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤ⌣⌣ㅤㅤtsukasa|randalㅤ kin ![Image](https://github.com/user-attachments/assets/b182b2a4-1d22-49f3-bae3-6b711eca2084)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤ⌣⌣ㅤㅤtsukasa|randalㅤ kin ![Image](https://github.com/user-attachments/assets/9e9bcd3f-4daa-404f-bc3d-0b046656ba36)
 
 
 
